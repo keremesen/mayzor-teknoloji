@@ -1,0 +1,1 @@
+# mayzor-teknoloji
